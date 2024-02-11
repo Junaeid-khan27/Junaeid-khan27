@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Junaeid-khan27
+- 👀 I’m interested in Marketing.
+- 🌱 I’m currently learning Web analytics.
+- 💞️ I’m looking to collaborate on Multi billionaire company.
+- 📫 You can reach me via Facebook, Instagram, Linkedin.
+- 😄 Pronouns: Bangla, English, Arabic, Urdu, Hindi.
+- ⚡ Fun fact: I'm learnig various thing at a time.
